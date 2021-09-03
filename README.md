@@ -1,2 +1,0 @@
-# Lukasz
-Lukasz Wolny
